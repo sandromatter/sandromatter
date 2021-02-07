@@ -1,6 +1,6 @@
 ### hey! 👋
 
-I am an online marketing specialist and study «Digital Business Management» at the University of Applied Sciences of the Grisons. What I like in a nutshell:
+I am an online marketing specialist from Switzerland 🇨🇭 and study «Digital Business Management» at the University of Applied Sciences of the Grisons. What I like in a nutshell:
 
  - Mountains & mountainbikes! 🌲 ⛰️ 🚴
  - Photography & videography 📸 🎥 
