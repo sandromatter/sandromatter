@@ -6,4 +6,4 @@ I am an online marketing specialist and study «Digital Business Management» at
  - Photography & videography 📸 🎥 
  - Tech, news & media 💾 📰
 
-Find out more about me on [sandromatter.ch](https://www.sandromatter.ch/?utm_source=github&utm_medium=readme&utm_campaign=aboutme)
+Find out more about me on [sandromatter.ch/en](https://www.sandromatter.ch/en/?utm_source=github&utm_medium=readme&utm_campaign=aboutme)
