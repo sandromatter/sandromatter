@@ -1,9 +1,11 @@
-### hey! 👋
+### Hey! 👋
 
-I am an online marketing specialist from Switzerland 🇨🇭 and study «Digital Business Management» at the University of Applied Sciences of the Grisons. What I like in a nutshell:
+Nice to see you. I am Sandro, a Digital Marketing Specialist, Tech Geek and Pastalover from Switzerland.
 
- - Mountains & mountainbikes! 🌲 ⛰️ 🚴
- - Photography & videography 📸 🎥 
- - Tech, news & media 💾 📰
+What I like in a nutshell:
+
+- Mountains & Mountainbikes! 🌲 ⛰️ 🚴
+- Photography & Videography 📸 🎥
+- Tech, News & Media 💾 📰
 
 Find out more about me on [sandromatter.ch/en](https://www.sandromatter.ch/en/?utm_source=github&utm_medium=readme&utm_campaign=aboutme)
